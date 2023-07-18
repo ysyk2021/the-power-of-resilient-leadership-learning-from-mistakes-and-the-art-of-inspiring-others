@@ -22,7 +22,6 @@ Whether you're a seasoned leader or just starting your leadership journey, this 
 
 At its core, "The Power of Resilient Leadership" is about leading with purpose and passion. By learning from mistakes and cultivating a growth mindset, resilient leaders can inspire their teams to overcome challenges and achieve greatness. With practical tips and real-life examples, this book is an invaluable guide for anyone looking to become a more resilient leader.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
