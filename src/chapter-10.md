@@ -18,26 +18,6 @@ Building Skills and Expertise
 
 Resilient leaders actively seek out opportunities to build their skills and expertise. This can include attending conferences and workshops, seeking out mentorship and coaching, taking courses or training programs, and reading industry publications.
 
-Developing a Professional Network
----------------------------------
-
-Developing a professional network is essential for professional growth and success. Resilient leaders build strong relationships with colleagues, peers, and industry experts, which can lead to new opportunities, insights, and collaborations.
-
-Staying Adaptable and Open to Change
-------------------------------------
-
-Resilient leaders stay adaptable and open to change in their careers. They are willing to pivot when necessary and adapt to changing circumstances in order to achieve their professional goals.
-
-Embracing Challenges and Learning from Mistakes
------------------------------------------------
-
-Resilient leaders embrace challenges as opportunities for growth and learning. When things don't go as planned, they take time to reflect on what went wrong and identify areas where improvement is needed.
-
-Fostering a Growth Mindset
---------------------------
-
-Resilient leaders foster a growth mindset in themselves. They believe that their skills and abilities can be developed through hard work and dedication, rather than being fixed traits.
-
 Conclusion
 ----------
 
