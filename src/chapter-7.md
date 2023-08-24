@@ -1,5 +1,3 @@
-Chapter 6: Navigating Change and Uncertainty
-============================================
 
 Change and uncertainty are inevitable in any organization. As a leader, it is important to understand the role that change and uncertainty play in leadership, as well as techniques for navigating through these challenging times. In this chapter, we will explore these topics in detail.
 

@@ -1,5 +1,3 @@
-Introduction
-============
 
 Leadership is not an easy task. It requires vision, determination, and the ability to inspire others towards a common goal. However, along the way, leaders face numerous challenges that can test their resilience and determination.
 

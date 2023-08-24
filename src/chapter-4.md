@@ -1,5 +1,3 @@
-Chapter 3: Building Self-Awareness
-==================================
 
 Self-awareness is a critical component of effective leadership. Leaders who are self-aware are better able to understand their own strengths and weaknesses, communicate more effectively with their team, and build strong relationships based on trust and respect. In this chapter, we will discuss techniques for building self-awareness in relation to leadership, identifying your strengths and weaknesses as a leader, and building emotional intelligence and empathy.
 

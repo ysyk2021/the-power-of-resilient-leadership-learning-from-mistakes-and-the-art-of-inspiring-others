@@ -1,5 +1,3 @@
-Using Resilient Leadership for Career Development
-==================================================================================================================
 
 Resilient leadership is not only important for leading a team, but also for personal and professional growth. By applying the principles of resilient leadership to their own career development, individuals can become more effective at achieving their goals and advancing in their careers. In this chapter, we will discuss how to use resilient leadership for career development.
 

@@ -1,5 +1,3 @@
-Building Trust and Accountability
-==========================================
 
 In this chapter, we will explore the crucial components of building trust and accountability as essential elements of resilient leadership. Trust and accountability form the foundation of strong team dynamics, fostering collaboration, innovation, and high-performance. Leaders who cultivate trust and accountability within their teams create an environment where individuals feel supported, valued, and motivated to achieve shared goals.
 

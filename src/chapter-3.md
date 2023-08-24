@@ -1,5 +1,3 @@
-Chapter 2: Developing a Growth Mindset for Leadership
-=====================================================
 
 A growth mindset is essential for effective leadership. Leaders who have a growth mindset view challenges and setbacks as opportunities for growth and learning, rather than obstacles to success. In this chapter, we will discuss the importance of a growth mindset in leadership, techniques for developing a growth mindset, and overcoming obstacles to effective leadership.
 
@@ -69,5 +67,4 @@ Conclusion
 ----------
 
 Developing a growth mindset is critical for effective leadership. By embracing challenges, cultivating curiosity, practicing self-reflection, learning from mistakes, and surrounding oneself with positivity, leaders can develop a growth mindset and become more effective at leading their team. Additionally, by practicing resilience, seeking out support, staying focused on goals, and embracing flexibility, leaders can overcome obstacles and achieve their objectives.
-
 

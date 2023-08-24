@@ -1,5 +1,3 @@
-Building Strategic Thinking and Decision-Making Skills
-====================================================================================================
 
 In today's rapidly changing business environment, leaders must be able to navigate change and uncertainty with confidence. This requires strong strategic thinking and decision-making skills, as well as the ability to adapt quickly to new situations. In this chapter, we will discuss techniques for building these critical skills.
 

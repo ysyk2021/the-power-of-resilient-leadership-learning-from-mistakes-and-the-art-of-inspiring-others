@@ -1,5 +1,3 @@
-Chapter 8: Applying Resilient Leadership to Personal Growth
-===========================================================
 
 Resilient leadership isn't just about leading a team through tough times. It's also about personal growth and development. In this chapter, we will explore how resilient leaders can apply their skills to achieve personal growth and success.
 

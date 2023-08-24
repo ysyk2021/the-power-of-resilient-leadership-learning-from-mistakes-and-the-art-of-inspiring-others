@@ -1,5 +1,3 @@
-Types of Resilient Leadership
-======================================
 
 Resilient leadership encompasses various styles and approaches that enable leaders to navigate challenges, inspire others, and foster resilience. In this chapter, we will explore different types of resilient leadership and their unique characteristics. Each type brings its own strengths and focuses on specific aspects of resilience. By understanding these different types, leaders can cultivate their own resilient leadership style that aligns with their strengths and the needs of their teams. Let's delve into the key insights on the types of resilient leadership.
 

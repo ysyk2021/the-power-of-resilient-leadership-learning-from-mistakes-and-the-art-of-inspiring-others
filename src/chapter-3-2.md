@@ -1,5 +1,3 @@
-Techniques for Developing a Growth Mindset
-===================================================
 
 A growth mindset is crucial for resilient leadership. In this chapter, we will explore techniques that can help leaders develop and foster a growth mindset within themselves and their teams. By embracing a growth mindset, leaders can overcome challenges, learn from mistakes, and inspire others to reach their full potential. Let's delve into the key techniques for developing a growth mindset.
 

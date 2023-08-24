@@ -1,5 +1,3 @@
-Setting Goals for Professional Growth through Resilient Leadership
-===================================================================================================================================
 
 Setting goals is an essential component of professional growth and development. Resilient leaders set clear, measurable goals for themselves and their teams, and work towards achieving those goals with determination and persistence. In this chapter, we will discuss how to set goals for professional growth through the principles of resilient leadership.
 

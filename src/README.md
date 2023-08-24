@@ -1,4 +1,3 @@
-# Introduction
 
 Leadership is not just about achieving goals; it's about inspiring others to do the same. Resilient leadership goes one step further by equipping leaders with the skills they need to inspire their teams through challenging times. By learning from mistakes and developing a growth mindset, resilient leaders can create a culture of inspiration and motivation.
 

@@ -1,5 +1,3 @@
-Using Resilient Leadership for Personal Development
-============================================================
 
 In this chapter, we will explore how resilient leadership can be applied to personal development. By cultivating resilience, individuals can enhance their leadership skills, navigate challenges, and inspire others. We will delve into various strategies and practices that can empower individuals to embrace resilient leadership for their own growth and development.
 

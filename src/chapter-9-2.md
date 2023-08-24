@@ -1,5 +1,3 @@
-Setting Goals for Personal Growth through Resilient Leadership
-=======================================================================
 
 In this chapter, we will explore how to leverage resilient leadership to set goals for personal growth. By applying the principles of resilience, individuals can create a roadmap for their personal development, overcome obstacles, and inspire themselves and others along the way. We will delve into strategies and practices that empower individuals to embrace resilient leadership when setting goals for personal growth.
 

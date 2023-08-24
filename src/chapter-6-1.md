@@ -1,5 +1,3 @@
-The Impact of Inspiration and Motivation on Leadership
-===============================================================
 
 In this chapter, we will explore the significance of inspiration and motivation in resilient leadership. Inspiring and motivating others is a cornerstone of effective leadership, driving personal and collective growth, fostering resilience, and achieving exceptional results. By understanding the power of inspiration and motivation, leaders can create an environment that encourages individuals to reach their full potential. Let's delve into the key insights on the impact of inspiration and motivation on leadership.
 

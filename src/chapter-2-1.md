@@ -1,5 +1,3 @@
-What is Resilient Leadership?
-======================================
 
 Resilient leadership is an approach that emphasizes the ability to adapt, bounce back from setbacks, and inspire others during challenging times. In this chapter, we will explore the concept of resilient leadership and its importance in navigating uncertainty, learning from mistakes, and inspiring others. Resilient leaders possess a unique set of skills and qualities that enable them to maintain a positive mindset, lead with integrity, and foster resilience in their teams. Let's delve into the key insights on resilient leadership.
 

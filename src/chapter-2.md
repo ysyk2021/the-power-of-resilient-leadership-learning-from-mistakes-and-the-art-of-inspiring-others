@@ -1,5 +1,3 @@
-Chapter 1: Understanding Resilient Leadership
-=============================================
 
 Resilient leadership is the ability to lead through adversity and maintain a positive outlook in the face of challenges. Resilient leaders are able to bounce back from setbacks, inspire their team to overcome obstacles, and achieve their goals even in the most difficult circumstances. In this chapter, we will discuss what resilient leadership is, the types of resilient leadership, and the benefits of resilient leadership.
 

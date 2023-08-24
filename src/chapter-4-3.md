@@ -1,5 +1,3 @@
-Building Emotional Intelligence and Empathy
-====================================================
 
 In this chapter, we will explore the importance of emotional intelligence and empathy in resilient leadership. Building emotional intelligence and empathy allows leaders to connect with others on a deeper level, understand their emotions and perspectives, and build strong relationships. By honing these skills, leaders can foster a supportive and inclusive environment, enhance communication, and inspire others to overcome challenges. Let's delve into the key insights on building emotional intelligence and empathy.
 

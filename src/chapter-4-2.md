@@ -1,5 +1,3 @@
-Identifying Your Strengths and Weaknesses as a Leader
-==============================================================
 
 In this chapter, we will explore the significance of identifying your strengths and weaknesses as a leader in building resilience. Understanding your unique abilities and areas for growth is essential for effective leadership, personal development, and inspiring others. By recognizing and leveraging your strengths while addressing your weaknesses, you can enhance your leadership skills and create a positive impact. Let's delve into the key insights on identifying your strengths and weaknesses as a leader.
 

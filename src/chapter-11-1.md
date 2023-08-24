@@ -1,5 +1,3 @@
-The Ongoing Journey of Resilient Leadership
-=======================================================
 
 Resilient leadership is not a destination, but rather an ongoing journey. It requires continuous learning, growth, and adaptation to changing circumstances and challenges. In this chapter, we will discuss the ongoing journey of resilient leadership.
 

@@ -1,5 +1,3 @@
-Techniques for Inspiring and Motivating Others
-=======================================================
 
 In this chapter, we will explore various techniques that resilient leaders can employ to inspire and motivate others. Effective leadership involves not just managing tasks and making decisions, but also inspiring and energizing individuals to achieve their full potential. By utilizing these techniques, leaders can create a positive and motivational environment that fosters growth, engagement, and success. Let's dive into the key techniques for inspiring and motivating others.
 

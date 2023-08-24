@@ -1,5 +1,3 @@
-Chapter 9: Applying Resilient Leadership to Professional Growth
-===============================================================
 
 Resilient leadership isn't just about leading a team through tough times. It's also about personal and professional growth and development. In this chapter, we will explore how resilient leaders can apply their skills to achieve professional growth and success.
 

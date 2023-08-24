@@ -1,5 +1,3 @@
-Building Skills and Expertise
-==============================================================================================
 
 Resilient leadership isn't just about leading a team through tough times. It's also about personal growth and development. In this chapter, we will discuss how resilient leaders can apply their skills to build their own expertise and advance their careers.
 

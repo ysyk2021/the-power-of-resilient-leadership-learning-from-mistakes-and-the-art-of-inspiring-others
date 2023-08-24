@@ -1,5 +1,3 @@
-Chapter 5: Inspiring and Motivating Others
-==========================================
 
 Effective leadership is not just about managing tasks and achieving goals. It's also about inspiring and motivating others towards a common vision. In this chapter, we will explore the impact of inspiration and motivation on leadership, techniques for inspiring and motivating others, and building communication and teamwork skills.
 

@@ -1,5 +1,3 @@
-Chapter 4: Learning from Mistakes and Failures
-==============================================
 
 Mistakes and failures are inevitable in any leadership role. However, it is how you respond to these setbacks that can make all the difference. In this chapter, we will discuss the importance of learning from mistakes and failures, techniques for doing so, and how to build resilience and adaptability.
 
