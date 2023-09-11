@@ -1,5 +1,4 @@
-Chapter: Building Skills and Expertise
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the importance of building skills and expertise in resilient leadership. We explore how learning from mistakes and continuously developing oneself can contribute to becoming an inspiring leader who can navigate challenges and inspire others.
 

@@ -1,5 +1,4 @@
-Chapter: Using Resilient Leadership for Career Development
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore how resilient leadership can be utilized as a powerful tool for career development. We delve into the strategies and mindset that enable individuals to navigate their professional journeys with resilience, learn from mistakes, and inspire others along the way.
 

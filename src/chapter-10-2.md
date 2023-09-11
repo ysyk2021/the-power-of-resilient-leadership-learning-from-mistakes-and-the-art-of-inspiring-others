@@ -1,5 +1,4 @@
-Chapter: Setting Goals for Professional Growth through Resilient Leadership
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the significance of setting goals for professional growth in the context of resilient leadership. We delve into how goal-setting empowers leaders to navigate challenges, learn from mistakes, and inspire others while fostering personal and professional development.
 
